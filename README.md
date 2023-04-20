@@ -1,1 +1,3 @@
-🚀 A cada dia aprendendo mais.
+IFBA / Computação.
+ADS / Unijorge.
+a glimpse.
